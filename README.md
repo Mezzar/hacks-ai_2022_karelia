@@ -1,0 +1,1 @@
+# hacks-ai_2022_karelia
